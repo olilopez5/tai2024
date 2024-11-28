@@ -66,4 +66,4 @@ el reconocimiento de su cualificación profesional, en el ámbito de las profesi
 reguladas, al amparo de las disposiciones de derecho de la Unión Europea.
 3. Además de las instrucciones de cumplimentación de solicitudes (modelo
 790) que figuran en el apartado 6 de las bases específicas de esta convocatoria, las
-personas aspirantes deberán observar las siguientes instrucciones específicas:# tai2024
+personas aspirantes deberán observar las siguientes instrucciones específicas:
